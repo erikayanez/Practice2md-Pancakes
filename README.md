@@ -19,6 +19,7 @@
 
   3. Enjoy your pancake plain or with some popular toppings like Nutella, maple syrup, honey or fruits.  
   ---
-  > If you want to try an easy recipe visit [pancakes](https://www.youtube.com/watch?v=W1IFbmxfVh0)
+  > If you want to try an easy recipe visit [pancakes](https://www.youtube.com/watch?v=W1IFbmxfVh0) <br>
+  > Bon Appetit!!
 ---
 #### Erika Yáñez.
