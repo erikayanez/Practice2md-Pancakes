@@ -17,7 +17,7 @@
 
   2. Heat a lightly oiled griddle or frying pan over medium high heat.  Pour or scoop the batter onto the griddle, using approximately 1/4 of cup for each pancake.  Brown on both sides and serve hot.
 
-  3. Enjoy!!
+  3. Enjoy your pancake plain or with some popular toppings like Nutella, maple syrup, honey or fruits.  
   ---
   > If you want to try an easy recipe visit [pancakes](https://www.youtube.com/watch?v=W1IFbmxfVh0)
 ---
