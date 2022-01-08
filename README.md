@@ -19,6 +19,6 @@
 
   3. Enjoy!!
   ---
-  If you want to try an easy recipe visit [pancakes](https://www.youtube.com/watch?v=W1IFbmxfVh0)
+  > If you want to try an easy recipe visit [pancakes](https://www.youtube.com/watch?v=W1IFbmxfVh0)
 ---
 ### Erika Yáñez.
