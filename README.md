@@ -18,3 +18,5 @@
   2. Heat a lightly oiled griddle or frying pan over medium high heat.  Pour or scoop the batter onto the griddle, using approximately 1/4 of cup for each pancake.  Brown on both sides and serve hot.
 
   3. Enjoy!!
+  ---
+  If you want to try an easy recipe visit [pancakes](https://www.youtube.com/watch?v=W1IFbmxfVh0)
